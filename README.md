@@ -1,1 +1,1 @@
-# CIE2T-HU-FYP-II
+# CIE²T-HU-FYP-II
